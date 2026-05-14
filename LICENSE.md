@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency dydx trading bot Tool | auto-compounding + MEV-strategies, the #1 dydx trading bot. Includes auto-compounding and MEV-strategies for a
 
 
 
